@@ -1,4 +1,4 @@
-# CHALLENGE ALURA AMIGO SECRETO 🏆
+# CHALLENGE ALURA AMIGO SECRETO 🥇
 
 ## 📌 Descripción del proyecto
 
